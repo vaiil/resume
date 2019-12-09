@@ -3,7 +3,7 @@
 Full Stack developer
 
 Почта: yxllxy@ya.ru \
-Телефон: 8(963)773-17-29 \
+Телефон: 8 (963) 773-17-29 \
 Telegram: @vaiiil
 
 ## Опыт работы
